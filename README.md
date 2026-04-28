@@ -11,6 +11,6 @@
 ## Thành viên nhóm:
 **Trần Anh Quân** - 11244021
 
-**Mai Lê Nguyễn Thảo** - 11244031
+**Mai Lê Nguyên Thảo** - 11244031
 
 **Nguyễn Đình Tân** - 11244029 
